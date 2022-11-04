@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TanX399
 - 👀 I’m interested in editing.
-- 🌱 I’m currently learning about designing.
+- 🌱 I’m interested to marketing.
 - 💞️ I’m looking to collaborate on learning the adobe features.
 - 📫 Thank You for looking me.
 
